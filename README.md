@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @koshtironak8
 - 👀 I’m interested in Graphic Design and Also UI/UX Design.  
-- 🌱 I’m currently Pursuing BCA From Silver Oam University.
+- 🌱 I’m currently Pursuing BCA From Silver Oak University.
 - 💞️ I’m looking to collaborate on ...  
 - 📫 How to reach me koshtironak8@gmail.com
 - 😄 Pronouns: ...
